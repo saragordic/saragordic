@@ -8,6 +8,9 @@ from 0→1. Montenegrin, based in San Francisco, currently leading a design
 studio. I've spent my career working across product design, branding, and
 strategic advisory for startups and small teams.
 
+**This account is new.** Empty for now. I'm refining a few things before
+they land here.
+
 **Thinking about.** What design authorship looks like when agents can execute.
 If an agent can build the thing, the designer's value shifts entirely to taste,
 judgment, and knowing what question to ask. And brand as the last human signal:
