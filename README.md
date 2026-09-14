@@ -12,3 +12,7 @@ purpose, or not at all.
 
 I build my own tools when the ones that exist don't fit. Some of them will end
 up here.
+
+---
+
+[saragordic.com](https://www.saragordic.com) · [LinkedIn](https://www.linkedin.com/in/saragordic/)
