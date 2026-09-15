@@ -9,4 +9,4 @@ teams.
 
 This account is new. I'm refining a few things before they land here.
 
-[saragordic.com](https://www.saragordic.com) · [LinkedIn](https://www.linkedin.com/in/saragordic/)
+[saragordic.com](https://www.saragordic.com) · [LinkedIn](https://www.linkedin.com/in/saragordic/) · [X](https://x.com/saragordic)
