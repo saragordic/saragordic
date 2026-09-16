@@ -7,6 +7,6 @@ Francisco, currently leading a design studio. I've spent my career working
 across product design, branding, and strategic advisory for startups and small
 teams.
 
-This account is new. I'm refining a few things before they land here.
+This account is new. I'll be adding more stuff soon.
 
 [saragordic.com](https://www.saragordic.com) · [LinkedIn](https://www.linkedin.com/in/saragordic/) · [X](https://x.com/saragordic)
