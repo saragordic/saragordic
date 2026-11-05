@@ -1,6 +1,6 @@
 ### Sara Gordić
 
-Multidisciplinary product designer · San Francisco
+Product designer · San Francisco
 
 8+ years of experience shaping products from 0→1. Montenegrin, based in San
 Francisco, currently leading a design studio. I've spent my career working
